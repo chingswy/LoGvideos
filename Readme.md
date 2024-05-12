@@ -8,8 +8,3 @@ https://github.com/chingswy/LoGvideos/assets/22812405/abb200c1-5b9c-48fd-a9a1-f2
 
 
 https://github.com/chingswy/LoGvideos/assets/22812405/95c5c010-4e1f-4273-89bf-c96c3a990b06
-
-
-
-https://github.com/chingswy/LoGvideos/assets/22812405/b69970a5-0896-4e04-b6ff-758373570508
-
